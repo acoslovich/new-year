@@ -1,4 +1,4 @@
-# Happy New Year / Happy 2018
+# Happy New Year / Happy 2018, 2019, ...
 by Andrea Coslovich, Andrew Choy  
   
 This work is licensed under the Creative Commons Attribution-Share Alike 2.0 Generic license.  
